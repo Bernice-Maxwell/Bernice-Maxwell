@@ -1,4 +1,4 @@
-    *Hi, I’m @Bernice-Maxwell*
+   Hi, I’m @Bernice-Maxwell
 - 👀 I’m interested in data analytics
 - 🌱 I’m currently learning data analytic with Dahel Consult
 - 💞️ I’m looking to collaborate on data analytical project
