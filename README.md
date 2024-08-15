@@ -5,7 +5,7 @@
 - 💞️ I’m looking to collaborate on data analytical project
 - 📫 How to reach me[LinkedIn](https://www.linkedin.com/in/bernice-maxwell-aca-8888b4225?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3B%2BpKvj26CTP2lY8Hdy5Dm5w%3D%3D)
   
-- 😄 Pronouns: she
+- 😄 Pronouns: she/her
 - ⚡ Fun fact: I am always smiling and this attribute helps calm my nerves even in a challenging situation.
 
 <!---
